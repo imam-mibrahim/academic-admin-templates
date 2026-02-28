@@ -1,0 +1,1 @@
+The author used AI based language assistance to improve clarity and readability. The author reviewed and edited all suggestions and takes full responsibility for the content, interpretations, and references. No confidential data was entered into AI tools.
